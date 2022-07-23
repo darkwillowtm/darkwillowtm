@@ -1,6 +1,6 @@
 ### Hi there 👋
 
--I’m currently mastering Python 🙂
+-I’m currently mastering Python (& guitar) 🙂
 
 -Building on my public repository soon
 
