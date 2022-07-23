@@ -7,6 +7,6 @@
 
 ###
 
-If you are looking for music and guitar please check out my youtube channel
+If you are keen in music please check out my youtube channel
 
 https://www.youtube.com/channel/UCS4gQ5zn32fG6tRHEKf5udg
